@@ -1,0 +1,1 @@
+# SAMSUNG-A32-MEMO-4
